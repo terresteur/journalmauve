@@ -1,9 +1,9 @@
 # Cours 4
 ## Décrire 5 emplois du domaine du multimédia
-Choisissez des emplois qui pourraient vous intéresser. 
+Animation 2d et 3d, graphisme, game designeur, dessinateur de journal, illustrateur  
 
 ### Emploi 1 - Identification
-Écrire 4 à 5 lignes. Parler des tâches reliées à l'emploi. Expliquer où ces personnes travaillent. Décrire les qualités requises pour pratiquer ce métier. Un point qui vous intéresse dans ce métier. Un point qui rend ce métier moins intéressant pour vous.  
+Écrire 4 à 5 lignes. dessiner des succetion d'image qui vont créer un effet de mouvement. les plus célebre endroit ou la plus part des animateur voudrais aller travailler ce sont les studio d'animation ghibli, pixar, disney et fortiche. pour espéré travaille dans un studio d'animation il faut une certaine connaisance . Un point qui vous intéresse dans ce métier. Un point qui rend ce métier moins intéressant pour vous.  
 
 ### Emploi 2 - Identification
 4 à 5 lignes
