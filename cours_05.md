@@ -4,7 +4,7 @@
 ### Points forts
 Nommer deux points forts de votre présentation.
 
-Ont comprenais ou je voulais en venir et je regarder le public.
+Ont comprenais ou je voulais en venir et je regardais le public.
 
 ### Points à améliorer
 Nommer deux points à améliorer de votre présentation et expliquer comment vous allez les travailler pour les prochaines présentations.
@@ -14,4 +14,4 @@ Les vidéos qui n'ont pas marchés et travail plus mon oral. Pour les vidéos la
 ### Présentation préférée
 Quelle présentation avez-vous préféré et pourquoi?
 
-Celui de Jackob car celui-ci ma bien fait rire surtout quand ces lettre étais mis n'importe comment.
+Celui de Jackob car celui-ci ma bien fait rire surtout quand ces lettres étais mis n'importe comment.
