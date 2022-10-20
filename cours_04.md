@@ -7,14 +7,17 @@ Animation 2d et 3d, graphisme, game designeur, dessinateur de journal, illustrat
 
 ### Emploi 2 - Identification
 4 à 5 lignes
+Graphisme est un métier de designeur de maquette de site ou de pop-up. Le critère se base beaucoup sur les envahis des employeurs et le message qu’il veulent renvoyer sur leur entreprise. L’un des objectifs du graphiste est de pouvoir satisfaire les attentes des employeurs et des bien envoyer des messages voulut.  
 
 ### Emploi 3 - Identification
-4 à 5 lignes 
+4 à 5 lignes
+Game designeur s'occupe des désignes des personnages, des décors et des objets pour optimiser l'expérience des joueurs. Il s'assure de l'efficacité des designs sur le jeu et il s'assure aussi que ses adapter au monde du jeu. 
 
 ### Emploi 4 - Identification
 4 à 5 lignes
-
+Les dessinateurs de journal dont principalement les petites casses de dessin pour image le message que transmet le texte. 
 ### Emploi 5 - Identification
 4 à 5 lignes
+L'illustrateur s’occupe de faire les dessins que vous voyez sur les pages de vos romans se sont eux qui prend les commandes de dessin demander par des auteurs. 
 
 
